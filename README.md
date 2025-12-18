@@ -39,4 +39,3 @@ How It Works:
 
 This approach helps users stay engaged in their learning journey, adapt to emotional fluctuations, and receive real-time assistance tailored to their mood.
 
-Let me know if you need any further details or adjustments!
